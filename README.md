@@ -1,1 +1,2 @@
-QCC 2024 HighLight
+QCC KDBU 2024 Highlight
+Vietnam King Duan Company
